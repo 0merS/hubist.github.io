@@ -1,1 +1,1 @@
-# hubist.github.io
+# Hubist team
